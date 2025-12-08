@@ -1,2 +1,2 @@
-# Dark WOlf Entertainment
+# Dark Wolf Entertainment
 ## This is a website example. Please do NOT steal it.
